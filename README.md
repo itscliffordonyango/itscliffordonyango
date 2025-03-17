@@ -12,8 +12,8 @@ I'm passionate about Cyber Security, OSINT (Open Source Intelligence), Backend E
 💡 Let’s Collaborate!
 I'm open to working on web development projects, backend systems, and cybersecurity initiatives. If you have an interesting project, let’s connect!
 
-📬 Reach me on Instagram: @chakeems
-
-⚡ Fun Fact: The ancient Egyptians believed the most significant thing you could do was die.
+📬 Reach me on :
+Instagram: @chakeems
+Email : cliffordonyangog@gmail.com
 
 🚀 Let's build something awesome together!
