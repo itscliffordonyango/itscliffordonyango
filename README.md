@@ -16,5 +16,5 @@ I'm open to working on web development projects, backend systems, and cybersecur
 📬 Reach me on : <br>
 Instagram: @chakeems <br>
 Email : cliffordonyangog@gmail.com <br>
-
+LinkedIn : www.linkedin.com/in/clifford-onyango-35489727b <br>
 🚀 Let's build something awesome together!
